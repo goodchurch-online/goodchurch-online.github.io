@@ -1,1 +1,1 @@
-# goodchurch-online.github.io
+# goodchurch-online
